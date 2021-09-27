@@ -1,1 +1,1 @@
-Just going with the flow. open to learning new things, irrespectivevof field. like computer science. 
+Just going with the flow. open to learning new things, irrespective of field. like computer science. 
